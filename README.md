@@ -1,0 +1,2 @@
+# lryuuzakil.github.io
+blogs
